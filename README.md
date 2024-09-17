@@ -1,4 +1,4 @@
-Boas vindas ao meu perfil 💙💙
+Boas vindas ao meu perfil 💙
 Aqui é a maria eduarda astolfo 
 
 Estou estudando na Alura
